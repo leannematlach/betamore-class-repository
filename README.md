@@ -1,0 +1,1 @@
+# betamore-class-repository-
